@@ -5,6 +5,5 @@
 
 • 🌱 I'm currently learning: Markdown! I just started using Github in February, and still memorizing markdown commands as it's not always a part of my day to day
 
-• 📬 How to reach me....
+• 📬 How to reach me...DM on Twitter: https://twitter.com/Nilza_Marie
 
-• 😜 Fun fact....
